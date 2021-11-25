@@ -1,5 +1,5 @@
 ## Hello World!!!
 # Hello World
-God bless all!
+God bless All!
 Today
-Books
+thursday
